@@ -1,0 +1,3 @@
+# fuckyou
+fuck you
+die
